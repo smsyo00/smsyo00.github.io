@@ -1,0 +1,1 @@
+# smsyo00.github.io
